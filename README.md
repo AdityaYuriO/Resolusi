@@ -1,1 +1,1 @@
-# Resolusi
+PPLG K-ONE YEsss
